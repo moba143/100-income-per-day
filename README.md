@@ -1,2 +1,2 @@
-bjhh ssihb  x x # 100-income-per-day
+bjh h ssihb  x x # 100-income-per-day
 Daily income money 
